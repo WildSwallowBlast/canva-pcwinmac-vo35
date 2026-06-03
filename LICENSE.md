@@ -1,4 +1,4 @@
-# 
+# VIP Canva modèles pour Mac OS | Élite Canva modèles pour PC Windows. Avec filet de dégradé et sortie prête à imprimer — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
